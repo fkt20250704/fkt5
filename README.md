@@ -17,4 +17,4 @@
 
 总的来说，虽然免费观看日本AV是大多数人需求的一部分，但始终要确保通过安全、合法的渠道来观看，不仅可以享受优质内容，还能保护个人设备和隐私安全。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/fkt20250704/fkt5 ）</span>
